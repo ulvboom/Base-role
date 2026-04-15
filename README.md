@@ -8,3 +8,4 @@ Heres it https://x.com/Ulvboom7/status/2043006175453810749?s=20
 ho yall doin?
 Its already 2 years of being bullish on Base
 Wait for another post
+On my X
