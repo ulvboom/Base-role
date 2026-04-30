@@ -11,3 +11,4 @@ Wait for another post
 On my X
 Wassup guys
 I should commit at least 77x
+How u think will i complete it till airdrop
