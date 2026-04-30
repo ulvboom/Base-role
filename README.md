@@ -14,3 +14,4 @@ I should commit at least 77x
 How u think will i complete it till airdrop
 I think yes
 So guys 
+Have a good one
