@@ -10,3 +10,4 @@ Its already 2 years of being bullish on Base
 Wait for another post
 On my X
 Wassup guys
+I should commit at least 77x
